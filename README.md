@@ -1,3 +1,5 @@
+arquivos contendo as montagens 👇
+
 [trabalho montagem de circuitos 2.docx](https://github.com/user-attachments/files/30946831/trabalho.montagem.de.circuitos.2.docx)
 
 
